@@ -1,4 +1,4 @@
-This projest is seriously awesome, you guys!!  Changes made here to try to figure out how to commit and stuff.
+This projest is totally awesome, you guys!!  Changes made here to try to figure out how to commit and stuff.
 
 More changes!!
 
